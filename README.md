@@ -37,6 +37,6 @@
 
 🆔Telegram : https://t.me/offline4ll4
 
-🆔Tg_Channel : https://t.me/Black_T00l
+🆔Tg_Channel : https://t.me/off4ll4
 
 🆔Gmail : 0ffline4ll4@gmail.com
